@@ -1,1 +1,0 @@
-# sneha-verma-generative-AI
